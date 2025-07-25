@@ -1,1 +1,0 @@
-Seray Düztaşlar
